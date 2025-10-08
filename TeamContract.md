@@ -3,7 +3,8 @@ a) Preparation
 Each team member commits to reading assigned materials and completing individual readiness work before class.
 
 Members who come unprepared agree to accept reasonable consequences determined by the team (e.g., lower peer evaluation scores).
-Be puctual, please arrive 15 minutes after the hour(no penalties)
+
+Be punctual, please arrive 15 minutes after the hour(no penalties)
 
 b) Communication
 We will use Instagram as our primary communication channel.
@@ -48,6 +49,7 @@ By signing below, we acknowledge that we have read, discussed, and agreed to the
 Team Member Signatures:
 PO-CHUAN SU
 KONSTANTIN SHTOP
+SURI HO
 
 
-Date: _________Oct, 3 2025__________
+Date: _________Oct 3, 2025__________
