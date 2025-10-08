@@ -47,6 +47,7 @@ By signing below, we acknowledge that we have read, discussed, and agreed to the
 
 Team Member Signatures:
 PO-CHUAN SU
+KONSTANTIN SHTOP
 
 
 Date: _________Oct, 3 2025__________
