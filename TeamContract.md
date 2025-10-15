@@ -4,7 +4,7 @@ Each team member commits to reading assigned materials and completing individual
 
 Members who come unprepared agree to accept reasonable consequences determined by the team (e.g., lower peer evaluation scores).
 
-Be punctual, please arrive 15 minutes after the hour(no penalties)
+Be punctual, please arrive 15 minutes after the hour (no penalties).
 
 b) Communication
 We will use Instagram as our primary communication channel.
@@ -51,7 +51,8 @@ PO-CHUAN SU,
 KONSTANTIN SHTOP,
 SURI HO,
 SHUBHAM MOHTA,
-ANOUSHKA UPADHYAY
+ANOUSHKA UPADHYAY,
+Lisa Chen
 
 
-Date: _________Oct 3, 2025__________
+Date: _________Oct 15, 2025__________
